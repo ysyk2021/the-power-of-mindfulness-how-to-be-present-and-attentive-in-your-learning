@@ -1,4 +1,4 @@
-Chapter 6: Using Mindful Learning Techniques: Strategies for Using Visualization, Reflection, and Other Techniques to Enhance Learning
+Strategies for Using Visualization, Reflection, and Other Techniques to Enhance Learning
 ======================================================================================================================================
 
 Mindfulness is a powerful tool for enhancing learning. By cultivating present-moment awareness and attention, we can better absorb, process, and retain information. In this chapter, we will explore some of the most effective mindful learning techniques, including visualization, reflection, and other strategies for enhancing learning.

@@ -1,4 +1,4 @@
-Chapter 3: Cultivating Attention and Awareness - Techniques for Calming the Mind and Developing a Quiet Space for Focused Learning
+Techniques for Calming the Mind and Developing a Quiet Space for Focused Learning
 ==================================================================================================================================
 
 In order to effectively learn and retain information, it is important to cultivate attention and awareness. However, this can be challenging in today's fast-paced and constantly connected world. In this chapter, we will explore techniques for calming the mind and developing a quiet space for focused learning.

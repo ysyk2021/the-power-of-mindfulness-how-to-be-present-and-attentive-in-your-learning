@@ -1,4 +1,4 @@
-Chapter 4: Active Listening and Communication: Role of Active Listening and Communication in Effective Learning
+Role of Active Listening and Communication in Effective Learning
 ===============================================================================================================
 
 Effective communication is essential for effective learning. By actively listening and engaging in communication with others, we can better absorb and process information, build relationships, and achieve greater success. In this chapter, we will explore the role of active listening and communication in effective learning.

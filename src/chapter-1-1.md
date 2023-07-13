@@ -1,4 +1,4 @@
-Chapter 1: Introduction - Defining Mindfulness and Its Benefits in Learning
+Defining Mindfulness and Its Benefits in Learning
 ===========================================================================
 
 Mindfulness is a practice that has gained popularity in recent years due to its numerous benefits for mental health and well-being. In this chapter, we will define mindfulness and explore its benefits in learning.

@@ -1,7 +1,6 @@
 # Summary
 
-- [Introduction](README.md)
-- [Chapter 1: Introduction](chapter-1.md)
+- [Chapter 1: Introduction](README.md)
   - [Defining mindfulness and its benefits in learning](chapter-1-1.md)
   - [Overview of the essential techniques for using mindfulness to be present and attentive in your learning](chapter-1-2.md)
 - [Chapter 2: Understanding Mindfulness](chapter-2.md)
@@ -28,8 +27,4 @@
 - [Chapter 9: Applying Mindfulness in Different Learning Environments](chapter-9.md)
   - [Techniques for applying mindfulness in different learning environments](chapter-9-1.md)
   - [Tips for adapting mindfulness practices to different learning situations](chapter-9-2.md)
-- [Chapter 10: Conclusion](chapter-10.md)
-  - [Recap of strategies for using mindfulness to be present and attentive in your learning](chapter-10-1.md)
-  - [Encouragement to continue exploring the power of mindfulness for lifelong learning](chapter-10-2.md)
 - [Conclusion](conclusion.md)
-- [Contacts](contacts.md)

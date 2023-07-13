@@ -1,4 +1,4 @@
-Chapter 8: Balancing Learning with Self-Care - Strategies for Managing Stress and Finding Balance through Mindfulness Practices
+Strategies for Managing Stress and Finding Balance through Mindfulness Practices
 ===============================================================================================================================
 
 Learning can be a stressful experience, but mindfulness practices can help us manage that stress and find balance in our lives. In this chapter, we will explore strategies for managing stress and finding balance through mindfulness practices.

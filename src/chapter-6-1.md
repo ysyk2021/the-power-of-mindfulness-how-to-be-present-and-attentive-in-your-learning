@@ -1,4 +1,4 @@
-Chapter 6: Using Mindful Learning Techniques: Importance of Mindful Learning Techniques in Improving Retention and Comprehension
+Importance of Mindful Learning Techniques in Improving Retention and Comprehension
 ================================================================================================================================
 
 Mindful learning techniques can be powerful tools for improving retention and comprehension. By cultivating present-moment awareness and attention, we can better absorb and process information, and deepen our understanding of a subject. In this chapter, we will explore the importance of mindful learning techniques in enhancing retention and comprehension.

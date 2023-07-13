@@ -1,4 +1,4 @@
-Chapter 3: Cultivating Attention and Awareness - Importance of Cultivating Attention and Awareness for Effective Learning
+Importance of Cultivating Attention and Awareness for Effective Learning
 =========================================================================================================================
 
 Cultivating attention and awareness is crucial for effective learning. In this chapter, we will explore the importance of cultivating attention and awareness for effective learning.

@@ -1,4 +1,4 @@
-Chapter 1: Introduction - Overview of the Essential Techniques for Using Mindfulness to be Present and Attentive in Your Learning
+Overview of the Essential Techniques for Using Mindfulness to be Present and Attentive in Your Learning
 =================================================================================================================================
 
 Mindfulness is a powerful tool for enhancing learning and achieving success. In this chapter, we will provide an overview of the essential techniques for using mindfulness to be present and attentive in your learning.

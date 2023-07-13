@@ -1,4 +1,4 @@
-Chapter 4: Active Listening and Communication: Strategies for Improving Listening Skills and Building Better Relationships with Teachers and Peers
+Strategies for Improving Listening Skills and Building Better Relationships with Teachers and Peers
 ==================================================================================================================================================
 
 Active listening and effective communication are critical components of successful learning. By practicing active listening and building better relationships with teachers and peers, we can deepen our understanding of a subject and achieve greater success. In this chapter, we will explore strategies for improving listening skills and building better relationships.

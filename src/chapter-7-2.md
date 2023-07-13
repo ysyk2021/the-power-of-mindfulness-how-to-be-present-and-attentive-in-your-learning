@@ -1,4 +1,4 @@
-Chapter 7: Building Self-Awareness and Self-Compassion: Techniques for Building These Traits through Self-Reflection and Positive Self-Talk
+Techniques for Building These Traits through Self-Reflection and Positive Self-Talk
 ===========================================================================================================================================
 
 In the previous chapter, we explored the role of self-awareness and self-compassion in effective learning. In this chapter, we will focus on techniques for building these traits through self-reflection and positive self-talk.

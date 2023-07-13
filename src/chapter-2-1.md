@@ -1,4 +1,4 @@
-Chapter 2: Understanding Mindfulness: Techniques for Understanding Mindfulness and Its Role in Learning
+Techniques for Understanding Mindfulness and Its Role in Learning
 =======================================================================================================
 
 Mindfulness is a state of present-moment awareness and attention. By cultivating mindfulness, we can better absorb and process information, build resilience, and achieve greater success. In this chapter, we will explore techniques for understanding mindfulness and its role in learning.

@@ -1,4 +1,4 @@
-Chapter 8: Balancing Learning with Self-Care: Importance of Balancing Learning with Self-Care
+Importance of Balancing Learning with Self-Care
 =============================================================================================
 
 Learning is an important aspect of personal and professional growth. However, it's equally important to balance learning with self-care. In this chapter, we will explore the importance of balancing learning with self-care and provide tips for achieving this balance.

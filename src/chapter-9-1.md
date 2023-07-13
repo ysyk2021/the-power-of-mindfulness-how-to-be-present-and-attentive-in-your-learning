@@ -1,4 +1,4 @@
-Chapter 9: Applying Mindfulness in Different Learning Environments: Techniques for Applying Mindfulness in Different Learning Environments
+Techniques for Applying Mindfulness in Different Learning Environments
 ==========================================================================================================================================
 
 Mindfulness can be applied in different learning environments, including the classroom, workplace, and personal learning. In this chapter, we will explore techniques for applying mindfulness in different learning environments.

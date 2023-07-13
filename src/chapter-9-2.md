@@ -1,4 +1,4 @@
-Chapter 9: Applying Mindfulness in Different Learning Environments: Tips for Adapting Mindfulness Practices to Different Learning Situations
+Tips for Adapting Mindfulness Practices to Different Learning Situations
 ============================================================================================================================================
 
 Mindfulness can be applied in different learning environments and situations. However, the techniques used may need to be adapted to suit the specific context. In this chapter, we will explore tips for adapting mindfulness practices to different learning situations.

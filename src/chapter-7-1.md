@@ -1,4 +1,4 @@
-Chapter 7: Building Self-Awareness and Self-Compassion: Role of Self-Awareness and Self-Compassion in Effective Learning
+Role of Self-Awareness and Self-Compassion in Effective Learning
 ========================================================================================================================
 
 Effective learning is not just about acquiring knowledge and skills, but also about developing a deeper understanding of ourselves. This includes building self-awareness and self-compassion. In this chapter, we will explore the role of self-awareness and self-compassion in effective learning.

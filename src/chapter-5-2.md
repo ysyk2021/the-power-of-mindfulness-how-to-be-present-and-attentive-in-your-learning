@@ -1,4 +1,4 @@
-Chapter 5: Managing Distractions and Avoiding Procrastination: Tips for Breaking Down Tasks and Staying Motivated
+Tips for Breaking Down Tasks and Staying Motivated
 =================================================================================================================
 
 Distractions and procrastination can hinder effective learning. By managing distractions and avoiding procrastination, we can better focus our attention, break down tasks into manageable steps, and stay motivated to achieve our goals. In this chapter, we will explore tips for managing distractions and avoiding procrastination.

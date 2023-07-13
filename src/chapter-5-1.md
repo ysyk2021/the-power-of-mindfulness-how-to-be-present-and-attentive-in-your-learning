@@ -1,4 +1,4 @@
-Chapter 5: Managing Distractions and Avoiding Procrastination: Techniques for Minimizing Distractions and Avoiding Procrastination through Mindfulness
+Techniques for Minimizing Distractions and Avoiding Procrastination through Mindfulness
 ======================================================================================================================================================
 
 Distractions and procrastination can hinder effective learning, but by using mindfulness techniques we can better manage distractions and avoid procrastination. In this chapter, we will explore techniques for minimizing distractions and avoiding procrastination through mindfulness.
