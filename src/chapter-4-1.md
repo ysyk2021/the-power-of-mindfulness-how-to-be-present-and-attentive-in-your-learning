@@ -1,4 +1,4 @@
-Chapter 5: The Role of Active Listening and Communication in Effective Learning
+The Role of Active Listening and Communication in Effective Learning
 ===============================================================================
 
 In this chapter, we will explore the vital role that active listening and communication play in fostering effective learning experiences. By understanding and applying these skills, learners can enhance their comprehension, engagement, and overall success in acquiring knowledge.

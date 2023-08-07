@@ -1,4 +1,4 @@
-Chapter: Importance of Mindful Learning Techniques in Improving Retention and Comprehension
+Importance of Mindful Learning Techniques in Improving Retention and Comprehension
 ===========================================================================================
 
 Introduction

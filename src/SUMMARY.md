@@ -28,3 +28,4 @@
   - [Techniques for applying mindfulness in different learning environments](chapter-9-1.md)
   - [Tips for adapting mindfulness practices to different learning situations](chapter-9-2.md)
 - [Conclusion](conclusion.md)
+- [Contacts](contacts.md)
