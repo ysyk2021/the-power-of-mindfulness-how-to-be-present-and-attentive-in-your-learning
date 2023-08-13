@@ -40,4 +40,3 @@ Engaging multiple senses during the learning process can enhance retention and u
 * **Hands-on activities**: Perform experiments, create models, or engage in practical exercises whenever possible. The tactile experience deepens understanding and memory recall.
 
 By utilizing these visualization, reflection, and other effective techniques, learners can become more present, attentive, and actively engaged in their learning journey. So, embark on this transformative path and unlock the power of mindful learning.
-> Note: This book focuses on enhancing learning through mindfulness techniques and does not cover any political, territorial, or human rights issues.
