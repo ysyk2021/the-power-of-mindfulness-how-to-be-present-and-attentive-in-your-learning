@@ -15,6 +15,7 @@
 - [Chapter 5: Managing Distractions and Avoiding Procrastination](chapter-5.md)
   - [Techniques for minimizing distractions and avoiding procrastination through mindfulness](chapter-5-1.md)
   - [Tips for breaking down tasks and staying motivated](chapter-5-2.md)
+  - [Incorporating Mindfulness into Daily Life](chapter-5-3.md)
 - [Chapter 6: Using Mindful Learning Techniques](chapter-6.md)
   - [Importance of mindful learning techniques in improving retention and comprehension](chapter-6-1.md)
   - [Strategies for using visualization, reflection, and other techniques to enhance learning](chapter-6-2.md)
