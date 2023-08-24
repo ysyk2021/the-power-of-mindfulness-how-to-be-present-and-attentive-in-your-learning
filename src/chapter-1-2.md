@@ -1,5 +1,3 @@
-Overview of the Essential Techniques for Using Mindfulness to Be Present and Attentive in Your Learning
-==================================================================================================================
 
 In this chapter, we will provide an overview of essential techniques that harness the power of mindfulness to cultivate presence and attentiveness in your learning. These techniques are designed to help you fully engage with the learning process, enhance focus, and deepen your understanding of the material. By incorporating these practices into your learning routine, you can experience a transformative shift in how you approach and absorb knowledge.
 

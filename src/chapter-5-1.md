@@ -1,5 +1,3 @@
-Techniques for Minimizing Distractions and Avoiding Procrastination through Mindfulness
-==================================================================================================
 
 In this chapter, we will explore techniques for minimizing distractions and avoiding procrastination through the power of mindfulness. Distractions and procrastination can hinder our ability to be present and attentive in our learning journey. By cultivating mindfulness, we can develop the awareness and focus needed to overcome these challenges. This chapter offers practical techniques to help you stay on track, minimize distractions, and beat procrastination using mindfulness.
 

@@ -1,5 +1,3 @@
-Chapter 5: Managing Distractions and Avoiding Procrastination
-=============================================================
 
 In this chapter, we will explore techniques for minimizing distractions and avoiding procrastination through mindfulness. We'll also provide tips for breaking down tasks and staying motivated.
 

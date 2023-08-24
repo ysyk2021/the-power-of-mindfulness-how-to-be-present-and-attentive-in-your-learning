@@ -1,5 +1,3 @@
-Recap of Strategies for Using Mindfulness to be Present and Attentive in Your Learning
-===============================================================================================================
 
 Throughout this book, we have explored the many ways in which mindfulness can enhance learning and academic success. In this chapter, we will recap the strategies for using mindfulness to be present and attentive in your learning.
 

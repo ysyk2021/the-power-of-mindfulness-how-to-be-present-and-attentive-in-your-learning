@@ -1,5 +1,3 @@
-Chapter 10: Conclusion
-======================
 
 In this book, we have explored the power of mindfulness and how it can enhance learning and academic success. From essential techniques such as mindful breathing and meditation to strategies for cultivating attention and awareness, active listening and communication, and mindful learning techniques, we have seen how mindfulness can transform the learning experience.
 

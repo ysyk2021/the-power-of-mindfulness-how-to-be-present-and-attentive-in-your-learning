@@ -1,5 +1,3 @@
-Strategies for Improving Listening Skills and Building Better Relationships with Teachers and Peers
-============================================================================================================
 
 In this chapter, we will explore effective strategies for enhancing listening skills and cultivating positive relationships with both teachers and peers. Developing strong listening abilities not only enhances academic performance but also fosters better communication and understanding within educational settings. By implementing the following strategies, students can improve their listening skills and build meaningful connections with their educators and classmates.
 

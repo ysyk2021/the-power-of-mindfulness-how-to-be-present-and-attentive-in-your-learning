@@ -1,5 +1,3 @@
-Chapter 1: Introduction
-=======================
 
 Mindfulness is a powerful tool for enhancing learning and achieving success. By developing mindfulness, we can better absorb and process information, reduce stress and anxiety, and increase overall well-being. In this chapter, we will define mindfulness and its benefits in learning and provide an overview of the essential techniques for using mindfulness to be present and attentive in your learning.
 

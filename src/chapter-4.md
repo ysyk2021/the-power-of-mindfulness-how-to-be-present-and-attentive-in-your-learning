@@ -1,5 +1,3 @@
-Chapter 4: Active Listening and Communication
-=============================================
 
 Effective learning is not only about absorbing information, but also about effectively communicating with others. In this chapter, we will explore the role of active listening and communication in effective learning, as well as strategies for improving listening skills and building better relationships with teachers and peers.
 

@@ -1,5 +1,3 @@
-Chapter 7: Building Self-Awareness and Self-Compassion
-======================================================
 
 Self-awareness and self-compassion are essential traits for effective learning. In this chapter, we will explore the role of self-awareness and self-compassion in effective learning and provide techniques for building these traits through self-reflection and positive self-talk.
 

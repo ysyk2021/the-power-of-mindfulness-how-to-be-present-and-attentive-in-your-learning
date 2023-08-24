@@ -1,5 +1,3 @@
-Chapter 6: Using Mindful Learning Techniques
-============================================
 
 Mindful learning techniques can be a powerful tool for improving retention, comprehension, and overall success in academic pursuits. In this chapter, we will explore the importance of mindful learning techniques and provide strategies for using visualization, reflection, and other techniques to enhance learning.
 
