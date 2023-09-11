@@ -1,3 +1,6 @@
+# The Power of Mindfulness: How to Be Present and Attentive in Your Learning
+
+Book Link: [https://zhengpublishing.com/the-power-of-mindfulness-how-to-be-present-and-attentive-in-your-learning/](https://zhengpublishing.com/the-power-of-mindfulness-how-to-be-present-and-attentive-in-your-learning/)
 
 "The Power of Mindfulness: How to Be Present and Attentive in Your Learning" is a guidebook designed to help students, teachers, and lifelong learners develop the essential skills needed to achieve success in their academic pursuits. In this book, we explore the power of mindfulness and how it can transform the learning experience.
 
